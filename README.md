@@ -5,3 +5,5 @@ We went to Rushikonda Beach
 
 And then to **Kailashagiri** to see from the top of the hill.
 ![Kailasagiri](kailasagiri.jpg)
+
+The jouney was a beautiful experience.
